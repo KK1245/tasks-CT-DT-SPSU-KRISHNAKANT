@@ -1,0 +1,2 @@
+https://lucid.app/lucidchart/eb801c6f-fb6d-496b-8b13-c6a202487bb9/edit?viewport_loc=-506%2C-2377%2C1819%2C841%2C0_0&invitationId=inv_b51c7333-c76e-401d-8a56-2579c39b5090
+link for lucid diagram of task 03 product configurator flow chart
